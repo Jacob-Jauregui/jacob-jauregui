@@ -1,4 +1,4 @@
-### Hola :wave: mundo! 🌎
+### Hola :wave: Luna! :last_quarter_moon_with_face:
 
 Soy un estudiante autónomo y recientemente comencé a aprender sobre este maravilloso mundo de la programación.
 
